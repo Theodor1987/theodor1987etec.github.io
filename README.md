@@ -1,1 +1,1 @@
-# theodor1987etec.github.io
+# theodor1987.github.io
